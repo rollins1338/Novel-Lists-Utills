@@ -1,8 +1,9 @@
 # 📚 Repository Index
 
-This section catalogs all the translated Korean novels currently available in this repository. Most of them have the same genre (Dark Romance). Its my favorite genre so yea I'm hella biased. I rate all these novels 4 or 5 ⭐. They're all really good trust me.
+This section catalogs all the translated Korean novels currently available on my profile. Most of them have the same genre (Dark Romance). Its my favorite genre so yea I'm hella biased. I rate all these novels 4 or 5 ⭐. They're all really good trust me.
+All these novels are edited by me. I've removed all censorship and edited them in a way so they give audiobook vibes when listening. As I don't read any of these novels. I use Edge to listen to them. Man they have some really realistic voices.
 
-So here's the list -
+Anyway here's the list -
 
 *(Ongoing ones could be originally completed but I haven't finished adding them to the repo)*
 
