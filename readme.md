@@ -53,7 +53,7 @@ Anyway here's the list -
 
 ## 🛠️ Contribution & Support
 
-Contributions are welcome! If you notice any missing chapters, ncorrect translations please open an issue or submit a pull request.
+Contributions are welcome! If you notice any missing chapters, incorrect translations please open an issue or submit a pull request.
 ---
 Also I take novel recommendations. I'll add them here with the required edits if they match my freak! 
 [My discord](https://discord.com/users/694473068038455306)
