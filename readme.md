@@ -42,15 +42,18 @@ Anyway here's the list -
 
 ---
 
-## ⬇️ PDF & E-Book Downloaders
+## ⬇️ PDF & E-Book Downloaders and Converters
 
 *Tools and services for converting or accessing content in PDF format.*
 
 - [Scribd downloader](https://scribd.vdownloaders.com/)
 - [PDF downloader](https://pdfdownloader.net)
-
+- [EPUB > PDF](https://www.onlineconverter.com/epub-to-pdf)
 ---
 
 ## 🛠️ Contribution & Support
 
-Contributions are welcome! If you notice any missing novels, inaccurate statuses, or have a suggestion, please open an issue or submit a pull request.
+Contributions are welcome! If you notice any missing chapters, ncorrect translations please open an issue or submit a pull request.
+---
+Also I take novel recommendations. I'll add them here with the required edits if they match my freak! 
+[My discord](https://discord.com/users/694473068038455306)
