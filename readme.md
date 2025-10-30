@@ -39,7 +39,8 @@ Anyway here's the list -
 - [Lunarletters](https://lunarletters.com)
 - [Lovely Blossoms](https://lovelyblossoms.com/all-novels/)
 - [Lily on the Valley](https://lilyonthevalley.com)
-
+- [Crumblyn](https://crumblyn.com/)
+- [Four Seasons Forest](https://fourseasonsforest.wordpress.com/)
 ---
 
 ## ⬇️ PDF & E-Book Downloaders and Converters
