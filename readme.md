@@ -1,19 +1,26 @@
-📚 Repository Index
+# 📚 Repository Index
 
-This section catalogs all the translated Korean novels currently available in this repository. Most of them have the same genre (Dark Romance). Its my favorite genre so yea I'm hella biased. I rate all these novels 4 ⭐ or 5. They're all really good trust me.
+This section catalogs all the translated Korean novels currently available in this repository. Most of them have the same genre (Dark Romance). Its my favorite genre so yea I'm hella biased. I rate all these novels 4 or 5 ⭐. They're all really good trust me.
 
 So here's the list -
 
 *(Ongoing ones could be originally completed but I haven't finished adding them to the repo)*
 
-| Novel Title | Status | Original Author |
-|-------------|--------|-----------------|
-| **Try Begging** | ✍️ Ongoing | Libenia |
-| **Cry or Better Yet, Beg** | ✅ Completed | Solche |
-| **Triton** | ✍️ Ongoing | Lee Jihye |
-| **Windburg** | ✍️ Ongoing | Lee Yuwol |
-| **Bastian** | ✍️ Ongoing | Solche |
-| **The Man's Perfect Wife** |  |  |
+| Novel Title | 📝 Status | ✍️ Original Author |
+|:---|:---:|:---|
+| **Try Begging** | `✍️ Ongoing` | Libenia |
+| **Cry or Better Yet, Beg** | `✅ Completed` | Solche |
+| **Triton** | `✍️ Ongoing` | Lee Jihye |
+| **Windburg** | `✍️ Ongoing` | Lee Yuwol |
+| **Bastian** | `✍️ Ongoing` | Solche |
+| **The Man's Perfect Wife** | `✅ Completed` | Lavender Blue |
+| **Doppio Senso** | `✅ Completed` | Kimpa |
+| **The Hidden Muse** | `✅ Completed` | Minato |
+| **The Fallen Fruit Under the Paradise** | `✅ Completed` | Mongsu |
+| **Flowers are Bait** | `✍️ Ongoing` | 건어물녀 |
+| **Apollo's Heart** | `✅ Completed` | Lee Bo-na |
+| **It doesn't matter if you're broken** | `✍️ Ongoing` | 홍시안 |
+| **My beloved whom I desire to kill** | `✍️ Ongoing` | Libenia |
 
 ---
 
