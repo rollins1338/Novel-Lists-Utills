@@ -8,19 +8,19 @@ So here's the list -
 
 | Novel Title | 📝 Status | ✍️ Original Author |
 |:---|:---:|:---|
-| **Try Begging** | `✍️ Ongoing` | Libenia |
-| **Cry or Better Yet, Beg** | `✅ Completed` | Solche |
-| **Triton** | `✍️ Ongoing` | Lee Jihye |
-| **Windburg** | `✍️ Ongoing` | Lee Yuwol |
-| **Bastian** | `✍️ Ongoing` | Solche |
-| **The Man's Perfect Wife** | `✅ Completed` | Lavender Blue |
-| **Doppio Senso** | `✅ Completed` | Kimpa |
-| **The Hidden Muse** | `✅ Completed` | Minato |
-| **The Fallen Fruit Under the Paradise** | `✅ Completed` | Mongsu |
-| **Flowers are Bait** | `✍️ Ongoing` | 건어물녀 |
-| **Apollo's Heart** | `✅ Completed` | Lee Bo-na |
-| **It doesn't matter if you're broken** | `✍️ Ongoing` | 홍시안 |
-| **My beloved whom I desire to kill** | `✍️ Ongoing` | Libenia |
+| [**Try Begging**](https://github.com/rollins1338/TryBeggingWN) | `✍️ Ongoing` | Libenia |
+| [**Cry or Better Yet, Beg**](https://github.com/rollins1338/CoBYB) | `✅ Completed` | Solche |
+| [**Triton**](https://github.com/rollins1338/LNTriton) | `✍️ Ongoing` | Lee Jihye |
+| [**Windburg**](https://github.com/rollins1338/WNWindburg) | `✍️ Ongoing` | Lee Yuwol |
+| [**Bastian**](https://github.com/rollins1338/LNBastian) | `✍️ Ongoing` | Solche |
+| [**The Man's Perfect Wife**](https://github.com/rollins1338/TMPWlol) | `✅ Completed` | Lavender Blue |
+| [**Doppio Senso**](https://github.com/rollins1338/DoppioSenso) | `✅ Completed` | Kimpa |
+| [**The Hidden Muse**](https://github.com/rollins1338/OdalisqueHiddenMuse) | `✅ Completed` | Minato |
+| [**The Fallen Fruit Under the Paradise**](https://github.com/rollins1338/The-Fallen-Fruit-under-the-paradise) | `✅ Completed` | Mongsu |
+| [**Flowers are Bait**](https://github.com/rollins1338/FlowersAreBait) | `✍️ Ongoing` | 건어물녀 |
+| [**Apollo's Heart**](https://github.com/rollins1338/ApollosHeart) | `✅ Completed` | Lee Bo-na |
+| [**It doesn't matter if you're broken**](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✍️ Ongoing` | 홍시안 |
+| [**My beloved whom I desire to kill**](https://github.com/rollins1338/MyBelovedWhom-I-DesireToKill) | `✍️ Ongoing` | Libenia |
 
 ---
 
@@ -28,13 +28,13 @@ So here's the list -
 
 *Some of these could be down. Will add more in the future.*
 
-- Anna's Archives
-- Pastetales
-- Novellib
-- Duskblossoms
-- Eternalune
-- Novelreads
-- Lunarletters
+- [Anna's Archives]()
+- [Pastetales]()
+- [Novellib]()
+- [Duskblossoms]()
+- [Eternalune]()
+- [Novelreads]()
+- [Lunarletters]()
 
 ---
 
