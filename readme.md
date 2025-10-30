@@ -28,13 +28,15 @@ So here's the list -
 
 *Some of these could be down. Will add more in the future.*
 
-- [Anna's Archives]()
-- [Pastetales]()
-- [Novellib]()
-- [Duskblossoms]()
-- [Eternalune]()
-- [Novelreads]()
-- [Lunarletters]()
+- [Anna's Archives](https://annas-archive.org/)
+- [Pastetales](https://pasteltales.com)
+- [Novellib](https://novelib.com/)
+- [Duskblossoms](https://duskblossoms.com)
+- [Eternalune](https://eternalune.com)
+- [Novelreads](https://www.novelreads.club)
+- [Lunarletters](https://lunarletters.com)
+- [Lovely Blossoms](https://lovelyblossoms.com/all-novels/)
+- [Lily on the Valley](https://lilyonthevalley.com)
 
 ---
 
@@ -42,8 +44,8 @@ So here's the list -
 
 *Tools and services for converting or accessing content in PDF format.*
 
-- Scribd downloader
-- PDF downloader
+- [Scribd downloader](https://scribd.vdownloaders.com/)
+- [PDF downloader](https://pdfdownloader.net)
 
 ---
 
