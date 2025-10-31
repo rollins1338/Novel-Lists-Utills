@@ -7,7 +7,7 @@
 
 <br>[Vulgar proposal](https://duskblossoms.com/novel/vulgar-proposal/)
 
-<br>[The sin of bring beside you](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
+<br>[The sin of being beside you](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
 
 <br>[How to escape from the yandere's crazy obsession](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
 
