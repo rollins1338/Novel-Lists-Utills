@@ -30,7 +30,6 @@ Anyway here's the list -
 
 *Some of these could be down. Will add more in the future.*
 
-- [Anna's Archives](https://annas-archive.org/)
 - [Pastetales](https://pasteltales.com)
 - [Novellib](https://novelib.com/)
 - [Duskblossoms](https://duskblossoms.com)
