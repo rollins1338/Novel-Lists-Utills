@@ -45,6 +45,7 @@ Anyway here's the list -
 - [Belle's Repository](https://bellerepository.com/)
 - [Woopread](https://woopread.com/)
 - [RubyMaybe](https://rubymaybetranslations.com/)
+- [CitrusAurora](https://citrusaurora.com/)
 
 
 ---
