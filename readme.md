@@ -43,6 +43,8 @@ Anyway here's the list -
 - [Transcendental TLs](https://transcendentaltls.com/)
 - [Elsicone](https://server.elscione.com/)
 - [Belle's Repository](https://bellerepository.com/)
+- [Woopread](https://woopread.com/)
+- [RubyMaybe](https://rubymaybetranslations.com/)
 
 
 ---
