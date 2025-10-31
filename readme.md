@@ -50,7 +50,9 @@
 <br>[MyBelovedWhomiDesireToKill](https://asurenovels.website/manga/my-beloved-whom-i-desire-to-kill/)
 
 
+---
 
-take recomm.
+take recomm. - <br>
 [list 1](https://www.novelupdates.com/viewlist/117424/)
+
 <br>[list 2](https://www.novelupdates.com/viewlist/122541/)
