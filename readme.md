@@ -2,6 +2,7 @@
 
 [Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 <br>
+
 [Merry psycho](https://lunarletters.com/manga/mery-psycho/)
 
 <br>[Vulgar proposal](https://duskblossoms.com/novel/vulgar-proposal/)
@@ -11,10 +12,18 @@
 <br>[How to escape from the yandere's crazy obsession](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
 
 <br>[Moon, Madness](https://lilyonthevalley.com/story/moon-madness/)
-<br>[Stigma Effect](https://woopread.com/series/stigma-effect)
-<br>[Chaotic nights](https://novelutopia.site/chaotic-nights/)
-<br>[Bridal lessons](https://citrusaurora.com/series/bridal-lessons/)
-<br>[The prince and the slave](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
+<br>
+
+[Stigma Effect](https://woopread.com/series/stigma-effect)
+<br>
+
+[Chaotic nights](https://novelutopia.site/chaotic-nights/)
+<br>
+
+[Bridal lessons](https://citrusaurora.com/series/bridal-lessons/)
+<br>
+
+[The prince and the slave](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
 
 ---
 
