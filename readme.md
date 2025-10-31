@@ -44,8 +44,10 @@ Anyway here's the list -
 - [Elsicone](https://server.elscione.com/)
 - [Belle's Repository](https://bellerepository.com/)
 - [Woopread](https://woopread.com/)
+- [NovelUtopia](https://novelutopia.site/)
 - [RubyMaybe](https://rubymaybetranslations.com/)
 - [CitrusAurora](https://citrusaurora.com/)
+- [Foxaholic18](https://18.foxaholic.com/novel/)
 
 
 ---
