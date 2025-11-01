@@ -24,6 +24,8 @@ Anyway here's the list -
 | [**It doesn't matter if you're broken**](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✅ Completed` | 홍시안 |
 | [🌟**My beloved whom I desire to kill**🌟](https://github.com/rollins1338/MyBelovedWhom-I-DesireToKill) | `✍️ Ongoing` | Libenia |
 
+
+- [Novels I plan to add](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
 ---
 
 ## 🌐 Novel Reading Websites
