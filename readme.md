@@ -1,4 +1,4 @@
-# 🫰🏼Will add soon
+# Will add soon
 
 [Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 <br>
