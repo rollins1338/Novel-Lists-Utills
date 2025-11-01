@@ -1,9 +1,8 @@
 # Will add soon
 
-[Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
-<br>
+- [Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 
-[Merry psycho](https://lunarletters.com/manga/mery-psycho/)
+- [Merry psycho](https://lunarletters.com/manga/mery-psycho/)
 
 <br>[Vulgar proposal](https://duskblossoms.com/novel/vulgar-proposal/)
 
