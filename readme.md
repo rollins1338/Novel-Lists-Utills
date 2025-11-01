@@ -4,6 +4,8 @@
 
 - [Merry psycho](https://lunarletters.com/manga/mery-psycho/)
 
+- [For Persephone](https://www.novelupdates.com/series/for-persephone/)
+
 - [Vulgar proposal](https://duskblossoms.com/novel/vulgar-proposal/)
 
 - [The sin of being beside you](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
