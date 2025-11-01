@@ -26,6 +26,7 @@ Anyway here's the list -
 
 
 - [Novels I plan to add](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
+- [Dark Western Omegaverse novels I wanna add](https://github.com/rollins1338/Western-omegaverse)
 ---
 
 ## 🌐 Novel Reading Websites
