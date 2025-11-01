@@ -41,10 +41,11 @@
 
 # 💥translate myself?
 [RU-The Butterfly's Sweet Tears](https://ranobelib.me/ru/book/217671--the-butterflys-sweet-tears)
-<br>
+<div>
 
 [i wanna kms translating and editing this](https://novelitaslight1409.blogspot.com/2024/10/mi-amada-quien-deseo-matar-miamaqudema.html)
 
+</div>
 ---
 
 # 🌡️Losing my mind!
