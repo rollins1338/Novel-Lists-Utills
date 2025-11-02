@@ -1,5 +1,7 @@
 # Will add soon
 
+- [For You in the Cage](https://www.wuxiaworld.eu/novel/for-you-in-the-cage)
+
 - [Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 
 - [Merry psycho](https://lunarletters.com/manga/mery-psycho/)
