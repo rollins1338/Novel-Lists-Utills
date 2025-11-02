@@ -45,7 +45,7 @@
 
 
 
-- [i wanna kms translating and editing this](https://novelitaslight1409.blogspot.com/2024/10/mi-amada-quien-deseo-matar-miamaqudema.html)
+- [i wanna kms translating and editing this](https://asurenovels.website/manga/mi-amado-a-quien-deseo-matar/)
 
 
 
@@ -53,7 +53,7 @@
 
 # 🌡️Losing my mind!
 - [Try Begging](https://bellerepository.com/novel/try-begging/chapter-1/)
-- [MyBelovedWhomiDesireToKill](https://asurenovels.website/manga/my-beloved-whom-i-desire-to-kill/)
+- [MyBelovedWhomiDesireToKill](https://asurenovels.website/manga/mi-amado-a-quien-deseo-matar/)
 
 
 ---
