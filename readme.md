@@ -23,6 +23,8 @@ Anyway here's the list -
 | [**Apollo's Heart**](https://github.com/rollins1338/ApollosHeart) | `✅ Completed` | Lee Bo-na |
 | [**It doesn't matter if you're broken**](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✅ Completed` | 홍시안 |
 | [🌟**My beloved whom I desire to kill**🌟](https://github.com/rollins1338/MyBelovedWhom-I-DesireToKill) | `✍️ Ongoing` | Libenia |
+| [**Lucia**](https://github.com/rollins1338/Lucia) | `✍️ Ongoing` | Covering The Sky |
+
 
 
 - [Novels I plan to add](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
