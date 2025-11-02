@@ -13,6 +13,7 @@ Anyway here's the list -
 | [**Try Begging**](https://github.com/rollins1338/TryBeggingWN) | `✍️ Ongoing` | Libenia |
 | [**Cry or Better Yet, Beg**](https://github.com/rollins1338/CoBYB) | `✅ Completed` | Solche |
 | [**Triton**](https://github.com/rollins1338/LNTriton) | `✍️ Ongoing` | Lee Jihye |
+| [**Lucia**](https://github.com/rollins1338/Lucia) | `✍️ Ongoing` | Covering The Sky |
 | [**Windburg**](https://github.com/rollins1338/WNWindburg) | `🚫Discontinued` | Lee Yuwol |
 | [🌟**Bastian**🌟](https://github.com/rollins1338/LNBastian) | `✍️ Ongoing` | Solche |
 | [**The Man's Perfect Wife**](https://github.com/rollins1338/TMPWlol) | `✅ Completed` | Lavender Blue |
@@ -23,7 +24,7 @@ Anyway here's the list -
 | [**Apollo's Heart**](https://github.com/rollins1338/ApollosHeart) | `✅ Completed` | Lee Bo-na |
 | [**It doesn't matter if you're broken**](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✅ Completed` | 홍시안 |
 | [🌟**My beloved whom I desire to kill**🌟](https://github.com/rollins1338/MyBelovedWhom-I-DesireToKill) | `✍️ Ongoing` | Libenia |
-| [**Lucia**](https://github.com/rollins1338/Lucia) | `✍️ Ongoing` | Covering The Sky |
+
 
 
 
