@@ -30,6 +30,8 @@
 
 - [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
 
+- [Please forget me (Citrusauroa)](https://citrusaurora.com/series/please-forget-me/) [Libenia]
+
 
 ---
 
