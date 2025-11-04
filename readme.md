@@ -47,7 +47,7 @@ Anyway here's the list -
 - [Crumblyn](https://crumblyn.com/)
 - [Four Seasons Forest](https://fourseasonsforest.wordpress.com/)
 - [Transcendental TLs](https://transcendentaltls.com/)
-- [Elsicone](https://server.elscione.com/)
+  
 - [Belle's Repository](https://bellerepository.com/)
 - [Woopread](https://woopread.com/)
 - [NovelUtopia](https://novelutopia.site/)
@@ -55,6 +55,13 @@ Anyway here's the list -
 - [CitrusAurora](https://citrusaurora.com/)
 - [Foxaholic18](https://18.foxaholic.com/novel/)
 
+
+
+---
+# PDF Database 
+- [Elsicone](https://server.elscione.com/)
+- [OceanOfPDFs](https://oceanofpdf.com/)
+- [Anna's Archive](https://annas-archive.org/)
 
 ---
 
