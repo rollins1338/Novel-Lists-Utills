@@ -30,7 +30,6 @@
 
 - [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
 
-- [Please forget me (Citrusauroa)](https://citrusaurora.com/series/please-forget-me/) [Libenia]
 
 
 ---
@@ -43,6 +42,8 @@
 - [The Wicked Husband](https://nyxscans.com/series/the-wicked-husband-novel)
 - [Portrait of an arrogant master](https://citrusaurora.com/series/portrait-of-an-arrogant-master/)
 - [A Butterfly Through the Mist](https://eternalune.com/novel/a-butterfly-through-the-mist/)
+- [Savage Paradise](https://lunarletters.com/manga/savage-paradise/)
+- [Please forget me (Citrusauroa)](https://citrusaurora.com/series/please-forget-me/) [Libenia]
 
 
 ---
