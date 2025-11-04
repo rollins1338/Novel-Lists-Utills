@@ -1,28 +1,30 @@
 # Will add soon
 
-- [For You in the Cage](https://www.wuxiaworld.eu/novel/for-you-in-the-cage)
+- [For You in the Cage (-)](https://www.wuxiaworld.eu/novel/for-you-in-the-cage)
 
-- [Surviving princess's joyful facade](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
+- [Surviving princess's joyful facade (Eternalune)](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 
-- [Merry psycho](https://lunarletters.com/manga/mery-psycho/)
+- [Merry psycho (LunarLetters)](https://lunarletters.com/manga/mery-psycho/)
 
-- [For Persephone](https://www.novelupdates.com/series/for-persephone/)
+- [For Persephone (-)](https://www.novelupdates.com/series/for-persephone/)
 
-- [Vulgar proposal](https://duskblossoms.com/novel/vulgar-proposal/)
+- [Vulgar proposal (DuskBlossoms)](https://duskblossoms.com/novel/vulgar-proposal/)
 
-- [The sin of being beside you](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
+- [The sin of being beside you (DuskBlossoms)](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
 
-- [How to escape from the yandere's crazy obsession](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
+- [How to escape from the yandere's crazy obsession (Citrusaroura)](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
 
-- [Moon, Madness](https://lilyonthevalley.com/story/moon-madness/)
+- [Moon, Madness (LillyontheValley)](https://lilyonthevalley.com/story/moon-madness/)
 
-- [Stigma Effect](https://woopread.com/series/stigma-effect)
+- [Stigma Effect (Woopread)](https://woopread.com/series/stigma-effect)
 
-- [Chaotic nights](https://novelutopia.site/chaotic-nights/)
+- [Chaotic nights (NovelUtopia)(https://novelutopia.site/chaotic-nights/)
 
-- [Bridal lessons](https://citrusaurora.com/series/bridal-lessons/)
+- [Bridal lessons (Citrusaroura)](https://citrusaurora.com/series/bridal-lessons/)
 
-- [The prince and the slave](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
+- [The prince and the slave (Foxaholic)](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
+
+- [A Sinful Marriage (LilyontheValley)](https://lilyonthevalley.com/story/a-sinful-marriage/)
 
 ---
 
