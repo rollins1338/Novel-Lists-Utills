@@ -26,6 +26,10 @@
 
 - [A Sinful Marriage (LilyontheValley)](https://lilyonthevalley.com/story/a-sinful-marriage/)
 
+- [Give me your child(Lilyonthe Valley)](https://lilyonthevalley.com/story/give-me-your-child/)
+
+- [Muddy Summer(LilyontheValley)](https://lilyonthevalley.com/story/muddy-summer/)
+
 ---
 
 # 🌟Maybe will add after the translations finish-
