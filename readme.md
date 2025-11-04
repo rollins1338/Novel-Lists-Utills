@@ -18,7 +18,7 @@
 
 - [Stigma Effect (Woopread)](https://woopread.com/series/stigma-effect)
 
-- [Chaotic nights (NovelUtopia)(https://novelutopia.site/chaotic-nights/)
+- [Chaotic nights (NovelUtopia)](https://novelutopia.site/chaotic-nights/)
 
 - [Bridal lessons (Citrusaroura)](https://citrusaurora.com/series/bridal-lessons/)
 
