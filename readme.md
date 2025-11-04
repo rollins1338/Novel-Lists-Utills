@@ -26,7 +26,9 @@
 
 - [A Sinful Marriage (LilyontheValley)](https://lilyonthevalley.com/story/a-sinful-marriage/)
 
-- [Give me your child (Lilyonthe Valley)](https://lilyonthevalley.com/story/give-me-your-child/)
+- [Give me your child (LilyontheValley)](https://lilyonthevalley.com/story/give-me-your-child/)
+
+- [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
 
 
 ---
