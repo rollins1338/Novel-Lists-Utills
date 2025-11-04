@@ -29,6 +29,8 @@
 - [Give me your child (LilyontheValley)](https://lilyonthevalley.com/story/give-me-your-child/)
 
 - [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
+- [My Wicked Masquerader (LilyontheValley)](https://lilyonthevalley.com/story/my-wicked-masquerader/)
+
 
 
 
@@ -72,4 +74,4 @@ take recomm.
 
 - [list 1](https://www.novelupdates.com/viewlist/117424/)
 
-- [list 2](https://www.novelupdates.com/viewlist/122541/)
+- [list 2](https://www.nhttps://lilyonthevalley.com/story/my-wicked-masqueraderovelupdates.com/viewlist/122541/)
