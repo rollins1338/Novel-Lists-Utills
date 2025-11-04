@@ -28,7 +28,6 @@
 
 - [Give me your child (Lilyonthe Valley)](https://lilyonthevalley.com/story/give-me-your-child/)
 
-- [Muddy Summer (LilyontheValley)](https://lilyonthevalley.com/story/muddy-summer/)
 
 ---
 
