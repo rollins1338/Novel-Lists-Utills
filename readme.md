@@ -38,7 +38,7 @@
 
 # 🌟Maybe will add after the translations finish-
 
--[Photopsia](https://novelib.com/story/photopsia/)
+- [Photopsia](https://novelib.com/story/photopsia/)
 - [Deviant 1995](https://www.novelupdates.com/series/deviant-1995/)
 - [Battle divorce](https://crumblyn.com/story/battle-divorce/)
 - [Just use me](https://duskblossoms.com/novel/please-just-use-me/)
