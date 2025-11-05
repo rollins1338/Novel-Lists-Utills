@@ -46,6 +46,7 @@
 - [Portrait of an arrogant master](https://citrusaurora.com/series/portrait-of-an-arrogant-master/)
 - [A Butterfly Through the Mist](https://eternalune.com/novel/a-butterfly-through-the-mist/)
 - [Savage Paradise](https://lunarletters.com/manga/savage-paradise/)
+- [A right to abandon you](https://novelib.com/story/a-right-to-abandon-you/)
 - [Please forget me (Citrusauroa)](https://citrusaurora.com/series/please-forget-me/) [Libenia]
 
 
