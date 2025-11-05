@@ -30,6 +30,7 @@ Anyway here's the list -
 
 - [Novels I plan to add](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
 - [Dark Western Romance/Omegaverse novels I wanna add](https://github.com/rollins1338/Western-omegaverse)
+- [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main) - Check mail (r7919) 15 nov. invitation from archiveofhourown
 ---
 
 ## 🌐 Novel Reading Websites
