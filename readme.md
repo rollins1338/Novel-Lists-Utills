@@ -30,6 +30,9 @@
 
 - [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
 - [My Wicked Masquerader (LilyontheValley)](https://lilyonthevalley.com/story/my-wicked-masquerader/)
+- [A Snake Entwining Flowers](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/A-Snake-Entwining-Flowers-unknow.pdf)
+- [Kill this Marriage](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/Kill-This-Marriage-unknown-2025.PDF)
+- [My Elegant Ruler](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/My-Elegant-Ruler-R19-Serena-Scen.PDF)
 
 
 
