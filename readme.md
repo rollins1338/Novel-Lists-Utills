@@ -69,7 +69,7 @@
 ---
 
 # 🌡️Losing my mind!
-- [Try Begging](https://bellerepository.com/novel/try-begging/chapter-1/)
+- [Try Begging](https://bellerepository.com/novel/try-begging/)
 - [MyBelovedWhomiDesireToKill](https://asurenovels.website/manga/mi-amado-a-quien-deseo-matar/)
 
 
