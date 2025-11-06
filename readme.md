@@ -28,7 +28,12 @@ Anyway here's the list -
 
 
 
-- [Novels I plan to add](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
+- [Novels I plan to add (KNovels)](https://github.com/rollins1338/Novel-Lists-Utills/tree/man-cave)
+
+---
+
+# 🌃 Western Novels and Fanfics 
+
 - [Dark Western Romance/Omegaverse novels I wanna add](https://github.com/rollins1338/Western-omegaverse)
 - [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main) - Check mail (r7919) 15 nov. invitation from archiveofhourown
 ---
@@ -59,7 +64,7 @@ Anyway here's the list -
 
 
 ---
-# PDF Database 
+# 💎 PDF Database 
 - [Elsicone](https://server.elscione.com/)
 - [OceanOfPDFs](https://oceanofpdf.com/)
 - [Anna's Archive](https://annas-archive.org/)
