@@ -67,6 +67,7 @@ Anyway here's the list -
 ---
 # 💎 PDF Database 
 - [Elsicone](https://server.elscione.com/)
+- [JNovels and other stuff](https://nyaa.si/)
 - [OceanOfPDFs](https://oceanofpdf.com/)
 - [Anna's Archive](https://annas-archive.org/)
 - [PDFcofee](https://pdfcoffee.com/)
