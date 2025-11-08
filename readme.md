@@ -60,7 +60,7 @@ Anyway here's the list -
 - [NovelUtopia](https://novelutopia.site/)
 - [RubyMaybe](https://rubymaybetranslations.com/)
 - [CitrusAurora](https://citrusaurora.com/)
-- [Foxaholic18](https://18.foxaholic.com/novel/)
+* [Foxaholic18](https://18.foxaholic.com/novel/)
 
 
 
