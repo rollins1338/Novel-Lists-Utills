@@ -1,38 +1,38 @@
 # Will add soon
 
-- [For You in the Cage (-)](https://www.wuxiaworld.eu/novel/for-you-in-the-cage)
+- [ ] [For You in the Cage (-)](https://www.wuxiaworld.eu/novel/for-you-in-the-cage)
 
-- [Surviving princess's joyful facade (Eternalune)](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
+- [ ] [Surviving princess's joyful facade (Eternalune)](https://eternalune.com/novel/beneath-the-surviving-princesss-joyful-facade/)
 
-- [Merry psycho (LunarLetters)](https://lunarletters.com/manga/mery-psycho/)
+- [ ] [Merry psycho (LunarLetters)](https://lunarletters.com/manga/mery-psycho/)
 
-- [For Persephone (-)](https://www.novelupdates.com/series/for-persephone/)
+- [ ] [For Persephone (-)](https://www.novelupdates.com/series/for-persephone/)
 
-- [Vulgar proposal (DuskBlossoms)](https://duskblossoms.com/novel/vulgar-proposal/)
+- [ ] [Vulgar proposal (DuskBlossoms)](https://duskblossoms.com/novel/vulgar-proposal/)
 
-- [The sin of being beside you (DuskBlossoms)](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
+- [ ] [The sin of being beside you (DuskBlossoms)](https://duskblossoms.com/novel/the-sin-of-being-beside-you/)
 
-- [How to escape from the yandere's crazy obsession (Citrusaroura)](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
+- [ ] [How to escape from the yandere's crazy obsession (Citrusaroura)](https://citrusaurora.com/series/how-to-escape-from-the-yanderes-crazy-obsession/)
 
-- [Moon, Madness (LillyontheValley)](https://lilyonthevalley.com/story/moon-madness/)
+- [ ] [Moon, Madness (LillyontheValley)](https://lilyonthevalley.com/story/moon-madness/)
 
-- [Stigma Effect (Woopread)](https://woopread.com/series/stigma-effect)
+- [ ] [Stigma Effect (Woopread)](https://woopread.com/series/stigma-effect)
 
-- [Chaotic nights (NovelUtopia)](https://novelutopia.site/chaotic-nights/)
+- [ ] [Chaotic nights (NovelUtopia)](https://novelutopia.site/chaotic-nights/)
 
-- [Bridal lessons (Citrusaroura)](https://citrusaurora.com/series/bridal-lessons/)
+- [ ] [Bridal lessons (Citrusaroura)](https://citrusaurora.com/series/bridal-lessons/)
 
-- [The prince and the slave (Foxaholic)](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
+- [ ] [The prince and the slave (Foxaholic)](https://18.foxaholic.com/novel/the-prince-and-the-slave/)
 
-- [A Sinful Marriage (LilyontheValley)](https://lilyonthevalley.com/story/a-sinful-marriage/)
+- [ ] [A Sinful Marriage (LilyontheValley)](https://lilyonthevalley.com/story/a-sinful-marriage/)
 
-- [Give me your child (LilyontheValley)](https://lilyonthevalley.com/story/give-me-your-child/)
+- [ ] [Give me your child (LilyontheValley)](https://lilyonthevalley.com/story/give-me-your-child/)
 
-- [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
-- [My Wicked Masquerader (LilyontheValley)](https://lilyonthevalley.com/story/my-wicked-masquerader/)
-- [A Snake Entwining Flowers](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/A-Snake-Entwining-Flowers-unknow.pdf)
-- [Kill this Marriage](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/Kill-This-Marriage-unknown-2025.PDF)
-- [My Elegant Ruler](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/My-Elegant-Ruler-R19-Serena-Scen.PDF)
+- [ ] [Even if you run away (DuskBlossoms)](https://duskblossoms.com/novel/even-if-you-run-away/)
+- [ ] [My Wicked Masquerader (LilyontheValley)](https://lilyonthevalley.com/story/my-wicked-masquerader/)
+- [ ] [A Snake Entwining Flowers](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/A-Snake-Entwining-Flowers-unknow.pdf)
+- [ ] [Kill this Marriage](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/Kill-This-Marriage-unknown-2025.PDF)
+- [ ] [My Elegant Ruler](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/My-Elegant-Ruler-R19-Serena-Scen.PDF)
 
 
 
