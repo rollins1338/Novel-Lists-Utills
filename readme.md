@@ -39,7 +39,7 @@ Anyway here's the list -
 - [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main) - Check mail (r7919) 15 nov. invitation from archiveofhourown
 ---
 
-## 🌐 Novel Reading Websites
+## 🌐 Translated KNovel Reading Websites
 
 *Some of these could be down. Will add more in the future.*
 
