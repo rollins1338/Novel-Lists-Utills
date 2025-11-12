@@ -33,6 +33,7 @@
 - [ ] [A Snake Entwining Flowers](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/A-Snake-Entwining-Flowers-unknow.pdf)
 - [ ] [Kill this Marriage](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/Kill-This-Marriage-unknown-2025.PDF)
 - [ ] [My Elegant Ruler](https://github.com/rollins1338/pdfsR19-will-add-later/blob/main/My-Elegant-Ruler-R19-Serena-Scen.PDF)
+- [ ] [Deliver Us From the Evil One](https://sites.google.com/view/loveeattea2/library/deliver-us-from-the-evil-one)
 
 
 
