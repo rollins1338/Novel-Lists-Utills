@@ -36,7 +36,7 @@ Anyway here's the list -
 # 🌃 Western Novels and Fanfics 
 
 - [Dark Western Romance/Omegaverse novels](https://github.com/rollins1338/Western-omegaverse)
-- [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main) - Check mail (r7919) 15 nov. invitation from archiveofhourown
+- [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main)
 ---
 
 ## 🌐 Translated KNovel Reading Websites
