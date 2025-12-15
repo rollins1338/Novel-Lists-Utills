@@ -35,7 +35,7 @@ Anyway here's the list -
 
 # 🌃 Western Novels and Fanfics 
 
-- [Dark Western Romance/Omegaverse novels](https://github.com/rollins1338/Western-omegaverse)
+- [Dark Western Romance/Omegaverse novels](https://github.com/rollins1338/audiobooklist/tree/main)
 - [Delving into Fanfics (Everything's dark romance of course)](https://github.com/rollins1338/Everything-Fanfic/tree/main)
 ---
 
