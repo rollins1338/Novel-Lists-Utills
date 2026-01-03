@@ -11,7 +11,7 @@ Anyway here's the list -
 | Novel Title | 📝 Status | ✍️ Original Author |
 |:---|:---:|:---|
 | [**Try Begging**](https://github.com/rollins1338/TryBeggingWN) | `✍️ Ongoing` | Libenia |
-| [**Cry or Better Yet, Beg**](https://github.com/rollins1338/CoBYB) | `✅ Completed` | Solche |
+| [🌟**Cry or Better Yet, Beg**🌟](https://github.com/rollins1338/CoBYB) | `✅ Completed` | Solche |
 | [**Triton**](https://github.com/rollins1338/LNTriton) | `✍️ Ongoing` | Lee Jihye |
 | [**Lucia**](https://github.com/rollins1338/Lucia) | `🚫Discontinued` | Covering The Sky |
 | [**Windburg**](https://github.com/rollins1338/WNWindburg) | `🚫Discontinued` | Lee Yuwol |
@@ -23,7 +23,7 @@ Anyway here's the list -
 | [**Flowers are Bait**](https://github.com/rollins1338/FlowersAreBait) | `✍️ Ongoing` | 건어물녀 |
 | [**Apollo's Heart**](https://github.com/rollins1338/ApollosHeart) | `✅ Completed` | Lee Bo-na |
 | [**Muddy Summer**](https://github.com/rollins1338/Muddy-Summer) | `✅ Completed` | 몽슈 |
-| [**It doesn't matter if you're broken**](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✅ Completed` | 홍시안 |
+| [🌟**It doesn't matter if you're broken**🌟](https://github.com/rollins1338/ItDoesntMatterIfYoureBroken) | `✅ Completed` | 홍시안 |
 | [🌟**My beloved whom I desire to kill**🌟](https://github.com/rollins1338/MyBelovedWhom-I-DesireToKill) | `✍️ Ongoing` | Libenia |
 
 
