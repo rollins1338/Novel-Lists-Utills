@@ -1,3 +1,5 @@
+--- Abandoned ---
+
 # 📚 Repository Index
 
 This section catalogs all the translated Korean novels, Western novels and fanfics currently available on my profile. Most of them have the same genre (Dark Romance with Yandere Male Leads). They're my favorite genre so yea I'm hella biased. I rate all these novels 4 or 5 ⭐. They're all really good trust me.
